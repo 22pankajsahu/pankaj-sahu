@@ -6,7 +6,7 @@
 
 ## Name: PANKAJ SAHU
 
-##M obile No.: 9340475779
+## Mobile No.: 9340475779
 
 ## Email: pankaj.sahu01@ssipmt.com, 22pankajsahu@gmail.com
 
